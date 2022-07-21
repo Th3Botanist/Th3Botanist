@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Th3Botanist
+- 👀 I’m interested in skiing, games, coffee, sports, coding and food
+- 🌱 I’m currently learning lots of things but mostly drawing and enterprise architecture
+- 💞️ I’m looking to collaborate on anything I find interesting
+- 📫 How to reach me through here.
